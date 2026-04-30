@@ -1,0 +1,1 @@
+# okul-veritaban--projesi
